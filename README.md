@@ -103,6 +103,8 @@ The quiz consisted of 5 rounds between Team A (CSC) and Team B (CSD).
 Through a series of quizzes, we had the opportunity to learn new vocabulary and idioms, and test our knowledge in a fun and competitive setting. The activity also fostered a sense of camaraderie among our teammates, as we worked together to answer the questions and succeed in the challenges. Overall, it was an exciting experience.
 
 
+16- 7 - 2024
+
     Speaker	JK
 Header	English Activity
 
@@ -115,7 +117,7 @@ I was in the Team A. Even thought the team didn’t win, the experience was rewa
 subject Math 
   
   Today was a funny experience! Me and   my friend Karmandeep attended the wrong math class instead of our actual class. I laughed at myself at that moment and thought that this is a good lesson to always double check before entering the classroom. 
-   
+ 
    Teacher	JK
   Subject	UHV
 
@@ -142,6 +144,7 @@ sir explained us in detail about NCc. He told us that The National Cadet Corps (
    Coordinates NSs
 
    sir explain us in detail about NSS he told us that national service scheme is an Indian government sector public service program conducted by the ministry of youth affairs and sports of the Government of India. he tell us about the aim and objectives of NSS, 
+
 to understand the community in which 
 they work,
 
@@ -150,3 +153,40 @@ to understand themselves in relation to their community,
 identify the needs and problems of the community and involve them in problem solving process. 
 
 to develop among themselves a sense of social and civil responsibility, 
+
+19/07/2024 
+
+Resource Person	
+
+Er. Kanwardeep 
+Kalra
+
+Header	Campus to Corporate
+Eng. Kanwardeep Kalra gave an insightful lecture on campus to corporate. She talked about the importance of soft skills, such as communication, confidence, and behavior, in interviews and how these skills are often more valuable than technical skills. She also emphasized the need to be culturally fit and culturally reliable in the workplace, which can help employees adapt and thrive in different environments. Eng. Kalra also discussed the importance of soft skills and how to develop them. She mentioned that softskills can be learned and improved by practicing them regularly, seeking feedback from others, and putting oneself out of one’s comfort zone. Eng. Kalra further highlighted the need for flexibility and adaptability in the workplace, especially in today’s fast-changing world, and how change can be challenging but ultimately beneficial for personal and professional growth.
+
+Department Visit 
+
+During our department visit, we were introduced to different societies and clubs available on campus. We also learned about the different curricula offered and their credit distribution. It was an excellent opportunity to understand the diverse opportunities available to us as students and to gain a better sense of the overall college experience.
+
+22/07/2024 
+
+Resource Person	
+
+Dr. SB Singh
+
+Header	Self Exploration
+
+Dr. SB Singh assigned us an interesting self-reflection exercise. It began with writing our name and personal information, followed by listing our strengths, weaknesses, job preferences, and hobbies. We were also asked about our priority goals in life and how we would achieve them.
+
+As I started to write down my responses, I realized how much I had to reflect on. It was a great opportunity to look within myself and gain a better understanding of my strengths, weaknesses, interests, and aspirations.
+
+
+Resource Person	
+
+Dr. Pushpinder Singh
+
+Header	Impotant points
+
+Today I learned about three different learning techniques: surface, deep, and strategic learning. Our instructor, Dr. Pushpinder Singh, emphasized the importance of using deep and strategic learning in college to gain a deeper understanding of the subject matter.
+
+Dr. Pushpinder explained how different people have different learning styles and that forcing one method on all students may lead to them disliking the subject. He also talked about the importance of competition with oneself rather than others, as well as being focused, flexible, humble, and having faith in one’s abilities. He taught us about the SQRWR technique for studying. This technique involves surveying the topic, asking questions, reading about the subject, writing down what we have learned, and reviewing the information to ensure that we have retained it. 
