@@ -3,6 +3,7 @@ Greetings everyone. My name is Jashanpreet Kaur. I am currently pursuing my bach
 | Activity sheet of Induction program  |
        
        10-7-2024
+
 To welcome the first day of the computer science engineering branch student induction program, a kirtan was held in the Gurdwara Sahib of the college.   
 After the kirtan, the students were served langar of tea and water, then the alumni came to fill the students with motivational words.
 
@@ -23,8 +24,11 @@ Then Harpreet Kaur Grewal madam and principal sir and all other teachers honored
 Today, we were introduced to the technical activities of the college, including the different societies and organisations, as well as the upcoming events and scholarship opportunities by Dr. Arvind Dhingra sir, Dr.Parminder singh and Dr. H.S Rai sir.It was a valuable opportunity to learn about the various opportunities available to us as students.
 
 |12-7-2024|
+
 (Teacher  Sandeep Kaur Gill) 
+
 Subject	Math
+
 Today we had a maths class with Mam Sandeep kaur. Her class was engaging and smooth. I made a silly mistake in a solution, and she didn’t react negatively at all. Instead, she told me to take another look and figure it out, which I appreciate. Her personality is so welcoming and approachable, which made me feel relaxed in class. Her openness to questions and her willingness to help out make her a great teacher.
  
      (Teacher  Manjot kaur )
@@ -36,6 +40,7 @@ We should focus on our natural acceptance regardless of our preconditioning.
 Self exploration leads to deeper understanding of oneself and can help us navigate life with harmony.
 Physical facilities should only serve the function of prosperity and not to convey a sense of inferiority.
 Any pourposal with Human beings should give us Mutual Harmony and any pourposal with Nature should give us Mutual prosperity.
+   
       15-7-2024
       
   speaker pyare Lal 
@@ -73,18 +78,27 @@ Career is a small part of life. Life is not a small part of career.
  The most important thing in communication is to hear what isn't being said 
   
   Topics Taught
-Smile
-Expressions
-Hand gestures
-Standing postures
-Sitting postures
-Position of Feet
-Handshakes
+  
+  Smile
 
-Speaker	NM & MK
-Header	English Activity
+ Expressions
 
-    The English activity class was a dynamic and challenging experience that engaged our critical thinking skills.
+ Hand gestures
+
+ Standing postures
+ 
+ Sitting postures
+ 
+ Position of Feet
+ 
+ Handshakes
+
+     Speaker	NM & MK
+  
+  Header	English Activity
+
+   
+The English activity class was a dynamic and challenging experience that engaged our critical thinking skills.
 The quiz consisted of 5 rounds between Team A (CSC) and Team B (CSD).
 Through a series of quizzes, we had the opportunity to learn new vocabulary and idioms, and test our knowledge in a fun and competitive setting. The activity also fostered a sense of camaraderie among our teammates, as we worked together to answer the questions and succeed in the challenges. Overall, it was an exciting experience.
 
