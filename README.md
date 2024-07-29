@@ -1,14 +1,20 @@
 Greetings everyone. My name is Jashanpreet Kaur. I am currently pursuing my bachelor’s degree in Computer Science and Engineering at Guru Nanak Dev Engineering College. I have a passion for creating new things and have a special interest in Fine arts and Astronomy. 
 | Activity sheet of Induction program  |
-10-7-2024
+       
+       10-7-2024
 To welcome the first day of the computer science engineering branch student induction program, a kirtan was held in the Gurdwara Sahib of the college.   
 After the kirtan, the students were served langar of tea and water, then the alumni came to fill the students with motivational words.
-| Mrs. Harpreet Kaur Grewal |who is HOD of applied science Greeted the students with very inspirational words and principal Dr. sehijpal singh also welcomed the students and filled them with his motivational speech 
+
+| Mrs. Harpreet Kaur Grewal |
+ HOD of applied science Greeted the students with very inspirational words and principal Dr. sehijpal singh also welcomed the students and filled them with his motivational speech 
+
 |Er. Jiwandeep Singh |
 Chief guest who is also alumni of college Er. jiwandeep singh give us valuable insights. He teach us the meaning of engineering. He says that good times in life should never be lost . He says don't wait for opportunity, create it .He told us about the life mistakes he had made and asked us to avoid them . His words were very enlightening and we were very happy to hear his speech.
+
 |Rajeshwar Singh Sidhu|
 Rajeshwar Singh Sidhu ji who was the chief guest also taught us very knowledgeable things , he told us the State of his success and more important things about moving forward and achieving the students created excitement 
 Then Harpreet Kaur Grewal madam and principal sir and all other teachers honored the chief guests.
+
 | 11-7-2024 Day 2 |
 
 Today, we were introduced to the technical activities of the college, including the different societies and organisations, as well as the upcoming events and scholarship opportunities by Dr. Arvind Dhingra sir, Dr.Parminder singh and Dr. H.S Rai sir.It was a valuable opportunity to learn about the various opportunities available to us as students.
