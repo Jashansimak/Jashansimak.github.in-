@@ -120,3 +120,33 @@ subject Math
   Subject	UHV
 
 In universal human values class, we had a fascinating discussion about the human being and our need for coexistence between body and being. We learned about how our needs as physical creatures are interconnected with our desires and how finding harmony between the two is crucial to our overall well-being. Additionally, we explored the concept of self-organization and self-exploration and the importance of taking ownership of our lives and making active choices that promote our personal growth and development.
+
+   Peer Interaction 
+
+Techer 
+
+Sir who is a 2nd year student informed us about the important things in the first year of the degree.  They explained us about the discipline and rules of the college. They explained us about the first year subjects and exams and taught us how to take exams honestly. They told us that second year students are always ready to help us.
+
+   Teacher Sandeep Kaur 
+
+   Subject Math 
+
+   Mathematics class was taken by Madam Sandeep Kaur.  He gave us questions to solve. I could not find a solution to a question, so madam answered my question very politely and lovingly. Ma'am's teaching method is very good and we find her understanding very good.
+
+   Dr. Harwinder Singh 
+   
+   ANO , NCC 
+sir explained us in detail about NCc. He told us that The National Cadet Corps (NCC) is the youth wing of the Indian Armed Forces with its headquarters in New Delhi, India. It is open to school and college students on voluntary basis as a Tri-Services Organisation, comprising the Army, the Navy and the Air Force. Cadets are given basic military training in small arms and drill. Officers and cadets have no liability for active military service once they complete their course
+
+   Er. Jasvir singh Grewal 
+   Coordinates NSs
+
+   sir explain us in detail about NSS he told us that national service scheme is an Indian government sector public service program conducted by the ministry of youth affairs and sports of the Government of India. he tell us about the aim and objectives of NSS, 
+to understand the community in which 
+they work,
+
+to understand themselves in relation to their community, 
+
+identify the needs and problems of the community and involve them in problem solving process. 
+
+to develop among themselves a sense of social and civil responsibility, 
