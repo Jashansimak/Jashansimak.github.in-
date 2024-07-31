@@ -190,3 +190,17 @@ Header	Impotant points
 Today I learned about three different learning techniques: surface, deep, and strategic learning. Our instructor, Dr. Pushpinder Singh, emphasized the importance of using deep and strategic learning in college to gain a deeper understanding of the subject matter.
 
 Dr. Pushpinder explained how different people have different learning styles and that forcing one method on all students may lead to them disliking the subject. He also talked about the importance of competition with oneself rather than others, as well as being focused, flexible, humble, and having faith in one’s abilities. He taught us about the SQRWR technique for studying. This technique involves surveying the topic, asking questions, reading about the subject, writing down what we have learned, and reviewing the information to ensure that we have retained it. 
+
+Teacher - KB
+
+subject- chemistry 
+
+Sir is the professor of chemistry, he gave us information about organic chemistry, in organic chemistry, water chemistry. They gave us basic information of organic chemistry on the first day.
+
+Peer Interaction 
+
+resources person Sharnjeet Singh 
+
+
+
+
