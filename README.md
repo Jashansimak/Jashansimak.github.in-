@@ -199,8 +199,40 @@ Sir is the professor of chemistry, he gave us information about organic chemistr
 
 Peer Interaction 
 
-resources person Sharnjeet Singh 
+resource person Sharnjeet Singh 
 
+2nd year student told us about Excel and Chat GPT.Explained about Excel and Chat GPT in detail. They have given us in-depth information about machine learning and various types of machine learning.
 
+Resource person Dr. Parminder Singh 
 
+About PMS Scholarship 
 
+Dr. Parminder Singh gave information about the ongoing stipend scheme for scheduled castes. He explained the importance of this scheme and encouraged the students to take up this scheme.  He explained the required documents to the students.
+
+        24/07/2024 
+
+Resource Person	Mr. Gauravdeep S
+
+Header	Success
+
+Mr. Gauravdeep shared his personal experiences and wisdom with us. He talked about the importance of sharing our struggles with others and not bottling them up. He explained how every struggle and failure is meant to teach us something, but we often don’t see it that way. He also mentioned how we are often conditioned to look for what is wrong in ourselves and not what is good. Mr. Gauravdeep also talked about temporary and permanent happiness, encouraging us to find our true qualities and start loving ourselves. He asked us to consider what the world would remember us for if we were to die today.
+
+Resource Person  Er. Lakhveer Singh
+
+Header	CML
+
+Lakhveer sir introduced us to the Society ‘Centre for Multi-Functional Learning’. He talked about the different functions of society and how it helps in the multi-dimensional development of students. He further explained the benefits of being a part of such a society and how it can be beneficial for our overall growth both academically and personally. Lakhveer sir also stressed on the need of such societies in a person’s life and how these type of groups can provide students with a supportive community where they can grow and learn together.
+
+       25/07/2024 
+
+The classes started on UHV (Universal Human values) which was followed by peer interaction where our seniors guided us on how to use the Canvas app. After which we also had a maths exam.
+
+         26/07/2024 
+
+Resource Person Dr. Kanwalpreet K Bhatt
+
+Header	Meditation
+
+The day started with Dr. Bhatt’s insights. She spoke about the benefits of meditation and provided us with instructions on how to meditate properly. Dr. Bhatt guided us all through a quick 15-minute meditation exercise, which made for a peaceful start to the day. She emphasized the importance of meditation in maintaining mental health, reducing stress, and improving overall wellbeing.
+
+Valedictory 
