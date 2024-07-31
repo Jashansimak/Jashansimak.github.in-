@@ -242,4 +242,4 @@ Header	Meditation
 
 The day started with Dr. Bhatt’s insights. She spoke about the benefits of meditation and provided us with instructions on how to meditate properly. Dr. Bhatt guided us all through a quick 15-minute meditation exercise, which made for a peaceful start to the day. She emphasized the importance of meditation in maintaining mental health, reducing stress, and improving overall wellbeing.
 
-Valedictory 
+Valedictory  
